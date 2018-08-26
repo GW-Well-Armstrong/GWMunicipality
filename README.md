@@ -49,3 +49,7 @@ Vadim_Heart
 Vitako_Romanov
 Winner_Montero
 Baxa_Rapsody
+Bazzik_Jonesjr
+Krosh_Price
+Jonny_Freeman
+Ilyas_Stenli
